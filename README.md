@@ -1,2 +1,2 @@
 # ylang
-Y do I do this?
+Y do I do this to myself?
